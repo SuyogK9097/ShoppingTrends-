@@ -1,1 +1,1 @@
-# ShoppingTrends-
+# ShoppingTrends
